@@ -6,7 +6,7 @@
 > **Phone:** +48 577 431 521    
 > **E-mail:** vladtett2000@gmail.com    
 > **Telegram:** https://t.me/Ydenn   
-> [LinkedIn](https://www.linkedin.com/in/vlad-teterev-b355331a1/)
+> **LinkedIn:** https://www.linkedin.com/in/vlad-teterev-b355331a1/
 
 ---   
 ## Skills and Proficiency:
